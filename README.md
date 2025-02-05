@@ -1,1 +1,0 @@
-https://github.com/AlexSkvortsov75384/ono-tebe-nado-fd
